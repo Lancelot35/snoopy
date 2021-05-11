@@ -1,1 +1,1 @@
-# snoopy
+# snoopy is my favorite  mascott
